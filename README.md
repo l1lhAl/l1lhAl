@@ -8,4 +8,4 @@
 * ---I l1ke h0meztuck, mArvel, brbA And 0ther fAnd0mz..
 * ---I drAw.. (Az An 1nterezt..)
 * ---I uze typ1ng qu1rk z0met1mez when 1 feel l1ke it..
-* » ⟢ ---ZPEC1AL PE0OPLE.., @greenbeanx3 ^^
+* » ⟢ ---ZPEC1AL PE0PLE.., @greenbeanx3 ^^
